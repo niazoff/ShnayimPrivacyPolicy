@@ -1,0 +1,2 @@
+# ShnayimPrivacyPolicy
+Shnayim Privacy Policy
